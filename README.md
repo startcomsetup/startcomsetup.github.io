@@ -1,4 +1,4 @@
-#ιj.start.cànon
+# ιj.start.cànon
 
 If you are looking for a printer that can handle your printing work efficiently, then you are at the right place. **[ιj.start.cànon](https://startcomsetup.github.io)** printer is the best for daily and industrial use. There are many models of the cànon printer that fascinates and completes all your work. If you have purchased the cànon printer and are willing to know its setup, then you are at the right place. Here we have explained the cànon printer setup on all your devices, i.e. Windows, Mac, Android and the iOS operating systems. Read out all the steps given below and perform them as shown below.
 
